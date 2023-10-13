@@ -2,7 +2,7 @@
 
 🌱 I’m currently learning how to better manage projects and cultivating support for the developers I work with, how to navigate and implement the International Image Interoperability Framework (IIIF), and how to read tarot.
 
-💞️ I’m looking to collaborate on projects that support the longevity and legacies of Black people, Black art, Black Language, and Black life. 
+💞️ I’m looking to collaborate on projects that support the longevity and legacies of Black people, Black art, Black language, and Black life. 
 
 📫 You can reach me at shawne.holloway@gmail.com or via any social media everywhere @ cleogirl2525. Hmu! 
 
