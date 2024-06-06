@@ -1,4 +1,4 @@
-👋 Hi, I’m **SHAWNÉ MICHAELAIN HOLLOWAY** I'm a performance artist, one of many Steering Comittee Members for projects with The Clinic for Open Source Arts, I'm an Assistant Professor of Kinetic Imaging at Virginia Commonwealth University, and the Digital Developer and Technology Manager at Black Lunch Table. 
+👋 Hi, I’m **SHAWNÉ MICHAELAIN HOLLOWAY** I'm a performance artist, Assistant Professor of Kinetic Imaging at Virginia Commonwealth University, and the Digital Developer and Technology Manager at Black Lunch Table. 
 
 🌱 I’m currently learning how to better manage projects and cultivating support for the developers I work with, how to navigate and implement the International Image Interoperability Framework (IIIF), and how to read tarot.
 
